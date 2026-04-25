@@ -1,4 +1,4 @@
-
+Experience scary shawarma kiosk like never before with no-ban Scripts for scary shawarma kiosk, the #1 Script. Includes one-hit kill and speed for
 
 
 
